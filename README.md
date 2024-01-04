@@ -1,0 +1,2 @@
+# Automatic
+Pegar rojo
